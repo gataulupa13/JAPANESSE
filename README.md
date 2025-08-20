@@ -1,2 +1,0 @@
-# JAPANESSE
-Adult
